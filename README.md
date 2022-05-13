@@ -1,0 +1,2 @@
+# Smr-Vinay-Iconia-In-Hyderabad
+SMR Vinay Iconia is a brand new residential complex in Kondapur now available for sale with 2 bhk, 3bhk , 4 bhk apartments. SMR Vinay Iconia, located in Kondapur is a 22 acre community providing with all needed facilities of a luxurious gated community in the vicinity of Hyderabad. At an affordable price of 5,900/- per sft, you can now make a home for yourself here at SMR Vinay Iconia. Kondapur being the evergrowing IT Hub &amp; Biz community, SMR Vinay Iconia brings you a whole new experience of "luxury and sophistication"
